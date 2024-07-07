@@ -1,1 +1,0 @@
-# Legendary_Winter_Sport_Club
